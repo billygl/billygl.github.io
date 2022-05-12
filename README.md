@@ -1,3 +1,0 @@
-# billygl.github.io
-
-Welcome!
